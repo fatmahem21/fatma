@@ -1,0 +1,1 @@
+Kopya resim içerir# fatma
